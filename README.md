@@ -1,2 +1,2 @@
 USAGE:
-![Imgur](https://imgur.com/NqvLdIQ)
+![Imgur](https://i.imgur.com/NqvLdIQ.png)
